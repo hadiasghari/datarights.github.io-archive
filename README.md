@@ -1,1 +1,1 @@
-# datarights.github.io / datarights.me
+# datarights.github.io / datarights.me (ARCHIVED VERSION)
